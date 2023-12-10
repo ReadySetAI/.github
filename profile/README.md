@@ -22,3 +22,6 @@ Join Us!
 --------
 
 We are always open to new ideas and talents. If you share our passion for AI innovations, welcome to the ReadySetAI team!
+k@kazakov.xyz
+https://kazakov.xyz
+https://github.com/kksudo
